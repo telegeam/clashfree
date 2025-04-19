@@ -155,16 +155,6 @@
 
 * * *
 
-### [KK加速](https://kkjiasu.top/#/register?code=lhGhQflc)
-
-点击注册：[点击进入](https://kkjiasu.top/#/register?code=lhGhQflc)
-
-
-便宜是真便宜，8 块钱买1个月，每个月 200 G 流量。自己用了一个多月，看视频完全不卡，下载游戏也很快。
-
-最大的缺点就是太便宜了
-
-* * *
 
 
 
